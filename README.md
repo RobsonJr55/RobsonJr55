@@ -1,5 +1,5 @@
 # Robson Resende Teixeira Junior 
-Graduando Engenharia Mecatrônica pelo Centro Federal de Educação Tecnológica de Minas Gerais - Campus V | 5° Poríodo
+Graduando Engenharia Mecatrônica pelo Centro Federal de Educação Tecnológica de Minas Gerais - Campus V | 5° Período
 
 Email: [robsonresende55@yahoo.com.br](mailto:robsonresende55@yahoo.com.br)
 
